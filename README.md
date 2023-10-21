@@ -1,1 +1,1 @@
-# University-Management-System-UML
+# University-Management-System-UML![Brainstorm Concept Map Planning Whiteboard in Green Purple Blue Simple Colorful Style (1)](https://github.com/emreyunusbas/University-Management-System-UML/assets/116023532/fd78facf-829a-494e-892e-85caada9e45f)
